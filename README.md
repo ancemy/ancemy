@@ -6,6 +6,6 @@
 🐍 Python • 🎵 Music • 🎨 Anime
 ```
 
-✈️️ <b><a href="t.me/res0x">Telegram</a></b>
+✈️️ <b><a href="https://t.me/ancemy">Telegram</a></b>
 
 </div>
